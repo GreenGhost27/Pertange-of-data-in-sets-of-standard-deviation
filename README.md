@@ -1,0 +1,1 @@
+# Pertange-of-data-in-sets-of-standard-deviation
